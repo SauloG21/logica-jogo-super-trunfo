@@ -1,0 +1,1 @@
+# logica-jogo-super-trunfo
